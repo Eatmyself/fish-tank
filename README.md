@@ -1,3 +1,3 @@
 # fish-tank
 
-[花園鰻水族缸]（https://github.com/Eatmyself/fish-tank/blob/master/螢幕錄影%202023-06-20%20下午8.42.00.mov）
+[花園鰻水族缸]（https://youtu.be/6t_DNjbWwzg?si=GsWErRHzIlkH-1qa）
